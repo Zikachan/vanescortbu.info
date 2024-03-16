@@ -1,2 +1,0 @@
-# vanescortbu.info
-vanescortbu.info
